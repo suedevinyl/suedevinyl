@@ -6,7 +6,9 @@
 
 
   
-   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&color=B8D0D9&center=true&width=435&lines=%22I+said+I'd+stay+with+you%2C%22;%22No+matter+where+you+go%2C%22;%22I'll+be+there.%22;%22That's+what+a+partner+does%2C%22;%22Isn't+it%3F%22;%E2%80%94+Lu+guang)](https://git.io/typing-svg)
+
+ 
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&color=B8D0D9&center=true&width=435&lines=%22I+said+I'd+stay+with+you%2C%22;%22No+matter+where+you+go%2C%22;%22I'll+be+there.%22;%22That's+what+a+partner+does%2C%22;%22Isn't+it%3F%22;%E2%80%94+Lu+guang)](https://git.io/typing-svg)
 
 
   
