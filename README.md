@@ -7,9 +7,3 @@
 
 
    $${\color{#827e8c}𝕸𝓪𝖙𝖈𝓱𝓲𝔫𝔤 \space 𝔴/ \space 𝖙𝓱𝓮 \space 𝖌𝓪𝓷𝖌}$$
-
-
-
-
-
-$${\color{#827e8c}\text{𝓜𝔂 𝘣𝔯𝔬𝔢𝓼 [@S-T-0-P](https://github.com) [@ReNighted](https://github.com) ! 𝖑𝖔𝖘𝖊𝖗𝖘}}$$
