@@ -6,4 +6,4 @@
   
 
 
-   $${\color{#827e8c}𝕸𝓪𝖙𝖈𝓱𝓲𝔫𝔤 \space 𝔴/ \space 𝖙𝓱𝓮 \space 𝖌𝓪𝓷𝖌}$$
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&color=827E8C&center=true&vCenter=true&width=435&lines=Matching+w%2F+the+gang+%5E_%5E)](https://git.io/typing-svg)
