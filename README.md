@@ -12,4 +12,4 @@
 
 
 
-$${\color{#827e8c}\text{𝓜𝔂 𝘣𝔯𝔬𝔢𝓼 @S-T-0-P  @Renighted ! 𝖑𝖔𝖘𝖊𝖗𝖘 }}$$
+$${\color{#827e8c}\text{𝓜𝔂 𝘣𝔯𝔬𝔢𝓼 [@S-T-0-P](https://github.com)  [@ReNighted](https://github.com) ! 𝖑𝖔𝖘𝖊𝖗𝖘 }}$$
