@@ -6,4 +6,4 @@
   
 
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&color=827E8C&center=true&vCenter=true&width=435&lines=Matching+w%2F+the+gang+%5E_%5E)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&color=827E8C&center=true&vCenter=true&width=435&lines=Matching+w%2F+%40S-T-0-P+%26+%40ReNighted+%5E_%5E+)](https://git.io/typing-svg)
